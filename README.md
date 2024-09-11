@@ -13,7 +13,7 @@ I’m currently working on various projects to enhance my skills in web developm
 I am always learning and growing in the tech space and storytelling domain. If you have any resources, advice, or interesting projects that blend creativity with storytelling, I’d love to hear from you!
 
 📫 How to Reach Me
-You can connect with me via email@example.com or through LinkedIn (if applicable).
+You can connect with me via blessynbox@gmail.com or through LinkedIn.
 
 📈 My GitHub Stats
 
